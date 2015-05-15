@@ -1,0 +1,2 @@
+# -ARI-
+MÁM RÁD ŠARIŠ
